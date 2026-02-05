@@ -1,0 +1,2 @@
+# TASK-DIFFICILI--INTERVENTO-NO
+Immagini per task studio (INTERVENTO NO, DIFFICILI)
